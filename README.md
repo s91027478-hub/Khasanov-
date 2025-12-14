@@ -1,0 +1,2 @@
+# Khasanov-
+Pifagor teoremasi.
